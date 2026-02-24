@@ -20,7 +20,7 @@ My name is **Jitesh Thakur** and I am a **Class 7 student** who loves technology
 
 Subscribe to my YouTube channel for funny and entertaining videos.
 
-🔗 https://youtube.com/@funny_comedy_001_official
+🔗 https://www.youtube.com/@Mazaak-O-Logy
 
 ---
 
